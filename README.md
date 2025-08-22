@@ -1,1 +1,0 @@
-# fire-quiz.io
